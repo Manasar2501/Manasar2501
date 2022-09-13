@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Manasa
+- 👀 I’m interested in coding and exploring new technology 
+- 🌱 I’m currently doing my engineering at Maharaja Institute of Technolgy Mysore, studing in the department Information Science and Engineering
+- 📫 can reach me ... @https://www.linkedin.com/in/manasa-r-017315226 
